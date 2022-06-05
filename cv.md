@@ -5,7 +5,8 @@
 * email: dev.zaynullin@gmail.com
 * tel: +79021261488
 * discord: @dev.zaynullin
-
+* [VK](https://vk.com/dev.zaynullin)
+* [TG](https://t.me/dev.zaynullin)
 
 
 ## About me:
